@@ -1,0 +1,4 @@
+Isaac Kim G01201648
+Bryan Tran G01192497
+Paul Kim G01194546
+Dastan Bauyrzhan G01198496
